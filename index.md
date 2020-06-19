@@ -11,4 +11,4 @@ Er hat immer einen lustigen Spruch auf Lager.
 * direkte Art
 
 
-> "Wie spät ist es? Es ist sex Uhr, reiten wir los!"
+> Wie spät ist es? Es ist sex Uhr, reiten wir los!
