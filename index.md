@@ -12,5 +12,3 @@ Er hat immer einen lustigen Spruch auf Lager.
 
 
 > Wie spät ist es? Es ist sex Uhr, reiten wir los!
-
-<img src="https://vignette.wikia.nocookie.net/himym/images/8/83/Rc0JG.jpg/revision/latest?cb=20130113174854"/>
