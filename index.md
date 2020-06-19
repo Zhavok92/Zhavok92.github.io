@@ -9,3 +9,6 @@ Er hat immer einen lustigen Spruch auf Lager.
 * frech
 * kollegial
 * direkte Art
+
+
+> Wie spät ist es? Es ist sex Uhr, reiten wir los!
